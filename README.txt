@@ -1,1 +1,1 @@
-Projet de Guillaume PAPET et Erwan LAUDRIN
+Projet ANDROID sur les crypto de Guillaume PAPET et Erwan LAUDRIN RIL 2106
